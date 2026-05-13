@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with king legacy Scripts exclusive, the #1 Script. Includes god mode and auto-collect for unbeatable
 
 
 
